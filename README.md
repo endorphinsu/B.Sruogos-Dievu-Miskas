@@ -1,4 +1,4 @@
-###### Pavadinimo paaiškinimas:
+##### Pavadinimo paaiškinimas:
 "Dievų miškas" - Balys Sruoga dirbo miške, apsuptas "Dievų" (budelių), kurie turėdavo galią prieš tave.
 
 ###### Apie:
