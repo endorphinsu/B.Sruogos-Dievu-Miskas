@@ -7,8 +7,7 @@ XX a. įspūdžiai nacių koncentracijos stovykloje per II pasaulinį karą. Įd
 
 
 ### Pati asmenybė:
-Sruoga iki įkalinimo buvo labai gerbiamas profesorius, literatas, dramaturgas
-Jis buvo ekstravagantiškas, nebijantis kritikuoti valdžios, kritikuoti tradicijas, siekiantis modernizuoti literatūra, kritikuodavo kitų tekstus tam, kad lietuvių literatūra neatrodytu monotoniška.
+Sruoga iki įkalinimo buvo labai gerbiamas profesorius, literatas, dramaturgas. Jis buvo ekstravagantiška asmenybė, nebijantis kritikuoti valdžios, kritikuoti tradicijas, siekiantis modernizuoti literatūra, kritikuodavo kitų tekstus tam, kad lietuvių literatūra neatrodytu monotoniška.
 
 Jam buvo labai sunku būti įkalintam, nes jis pradėjo sunkų fizinį darbą, kuriame reikėdavo rauti lauk rastus, kapoti malkas. 
 Po tam tikro laiko darbo jam sukilo temperatūra, numetė apie 30kg svorio, atsidūrė lagerio ligoninėje, po to buvo sugražintas tampyti rastus, praranda koją ir pradėjo dirbti raštinėje, dėl jo gero išprusimo ir vokiečių kalbos mokėjimo, kai studijavo vokietijoje.
