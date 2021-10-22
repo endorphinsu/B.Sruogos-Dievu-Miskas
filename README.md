@@ -176,3 +176,16 @@ Visi lagerio kaliniai, varomieji į darbą, buvo suskirstyti į darbo komandas. 
 SS vyras, vadinamas Kommandofürer - komandos vadas, atsakingas už jos tvarką ir darbus. Tačiau pačiam darbui vadovavo vienas iš kalinių tarpo, specialiai tam reikalui valdžios skiriamas.
 
 Versdavo kas nors Šreiderį (budelį) taip kankinti žmones? Ne, - niekas neversdavo! Tai buvo jo paties iniciatyvos reikalas. Smagu buvo jam tai. Smagu ir pelninga. Ir garbėtroška -patenkinta, - ir jis, mat, viršininkas: muša!
+
+IX. NAUJOKŲ ĮPILIETINIMAS
+
+Rašoma apie budelių elgesį ir kaip visi atsidūre dirbti lagerį. Visi yra čia dėl vieno ar kito nusikaltimo ir parodo, kad budeliai irgi gali būti žmonės.
+
+Naujokas, patekęs į pirtį pirmoj eilėj turėjo atiduoti Hapkei arba Cymui pinigus, auksą, žiedus, laikrodį, amžiną plunksną bei šiaip turimas brangenybes. Visa tai buvo surašoma į knygas, atskirai supakuojama, - kalinys pasirašydavo, ką atidavė. Tačiauknygose toli gražu ne viskas tiksliai buvo surašoma. Nusigandęs kalinys nė nepastebėdavo, ko knygose trūksta. Čia buvo pirtininkam pirmas pajamų šaltinis. Atimamos iš žydų brangenybės ir pinigai, gana dažnai ir rusų, retkarčiais - lenkų, jokiosna knygosna nebuvo rašoma.
+
+X. DUŠAS KŪNUI IR DŪŠIAI
+
+Aprašomas sunkus gyvenimas. Disciplina
+
+XI. ŽINGSNIU PER GALVAS
+
