@@ -349,3 +349,16 @@ Homoseksualistai buvo išimtinai vokiečiai. Vaikščiojo su ružavais trikampia
 begyvendami, raudoną ar juodą trikampį turėjo pakeisti į ružavą.
 
 XXXIV. LAGERINĖ TAUTŲ SĄJUNGA
+
+Lageryje buvo dvidešimt keturių ar šešių tautų nariai, skaitant SSSR visas tautas - ukrainiečius, gudus, gruzinus, totorius, mordvinus, kirgizus ir t. t. - rusais, kaip tai lageryje buvo daroma.
+Visą laiką savo skaičiumi vyravo lenkai - ir lageris jų žemėje buvo išbudavotas, - jis buvo skirtas jiem aptarnauti. Savaime, ir jų prieauglis buvo pats didžiausias. Lenkus čia atvarydavo iš įvairių gestapo įstaigų: Gdansko, Karaliaučiaus, Bydgoščo, Stargardo, Plocko, Grudziondzo, Kartūzų, Torunės ir daugelio kitų vietų.
+
+Lageryje buvo dar belgų, liuksemburgiečių, anglų, amerikonų, rumunų, graikų, serbų, švedų, norvegų, suomių, net viena
+japonė buvo galas žino iš kur ir kaip atsiradusi.
+
+XXXV. YPATINGIEJI KATORGININKAI
+
+1944 metų pavasarį atrėžė mūsų lagerio teritorijos didžiulį gabalą pelkėtoj pamiškėj ir pradėjo statyti aplink jį mūrinę sieną,
+tokią, kaip miestuose aplink kalėjimą stato.
+
+XXXVI. PEDAGOGIŠKIEJI EGZEMPLIORIAI
