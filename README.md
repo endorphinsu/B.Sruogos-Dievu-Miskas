@@ -342,3 +342,10 @@ XXXII. BIBELFORŠERIAI
 
 Bibelforscher - biblijos tyrinėtojas - tai buvo taip pat nusikaltimo ir are što rūšis. Tačiau jie patys, bibelforšeriai, to nusikaltimu nelaikydavo, - jie tuo didžiuodavos.
 Anketoje, kur buvo žymima religija, jie išdidžiai rašydavo: bibelforšeris. Tai buvo protestantų sektantai, daugiausia pasidarbavę Rytprūsiuose ir Lenkijos žemėje. Daugumas jų buvo vokiečiai, bet buvo jų tarpe ir vienas kitas lenkas. Jų lageryje buvo nedaug, vos kelios dešimtys vyrų ir moterų, bet užtat visi jie buvo puikiai išsilaikę egzemplioriai, - vienas už kitą įdomesnis, ypač psichopatologui.
+
+XXXIII. NUO KLEBONO IKI ČIGONO
+
+Homoseksualistai buvo išimtinai vokiečiai. Vaikščiojo su ružavais trikampiais. Kiti, net lageryje
+begyvendami, raudoną ar juodą trikampį turėjo pakeisti į ružavą.
+
+XXXIV. LAGERINĖ TAUTŲ SĄJUNGA
