@@ -189,3 +189,24 @@ Aprašomas sunkus gyvenimas. Disciplina
 
 XI. ŽINGSNIU PER GALVAS
 
+Reikia saugotis, kad niekas nepavogtu tavo drabužių
+lageryje visuomet kaltas yra nuskriaustasis, o ne skriaudėjas.
+
+XII. NUMIRĖLIŠKA DALIA
+
+Rašoma, kaip Sruoga įdarbino nešti lavonus prie ligoninės ant sniego, bet pasirodo, kad tie lavonai dar nėra visiškai numire.
+Visus dar gyvus, bandančius pasprukti ropojant, nutempe atgal į krūvą ir sutvarke, kad jie nebejudėtu, nebeatsimertku.
+
+Kartą gretimame bloke iš pat labo ryto triukšmingas skandalas. Šaukia, klykia, tokiais velniais keikias, kad net barako sienos braška.
+Bloke per naktį mirė devyni žmonės. Bloko raštvedys juos nurengdino, ant krūtinių numerius surašė (Su cheminiu pieštuku), prausykloje dailiai eilėje
+suguldė, pranešimą apie numirėlių skaičių su atitinkamais numeriais ir bloko viršininko parašu pristatė lagerio valdžiai.
+
+Taip skauda, kad jis nė numirėlio numerio kaip reikiant negali paskaityti. Para šo kitą numerį, kartais gyvo žmogaus. Numirėlio numeris lieka knygose neišbrauktas, išbraukiamas sveiko gyvo žmogaus numeris.
+Va, šitoksai per nesusipratimą patekęs į numirėlių skaičių pilietis lagery paprastai labai greitai mirdavo.
+
+Kai kurie žmones norėjo būti įtraukti į numirelių sarašą, tam kad būtu papraščiau pabėgti.
+
+XIII. DŪŠELIŲ APRAŠYMAS
+
+Kiti ilgaliežuviai tikino, kad ši anketa tiktai auksinių dantų reikalu ir rašoma buvo.
+Auksą (dantis) numirėliui iš gerklės išplėšia, įrašo į knygas ir atiduoda iždui, žinoma, jei pakeliui jo kas nors nenukniaukia.
