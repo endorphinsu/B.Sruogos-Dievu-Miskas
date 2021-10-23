@@ -210,3 +210,77 @@ XIII. DŪŠELIŲ APRAŠYMAS
 
 Kiti ilgaliežuviai tikino, kad ši anketa tiktai auksinių dantų reikalu ir rašoma buvo.
 Auksą (dantis) numirėliui iš gerklės išplėšia, įrašo į knygas ir atiduoda iždui, žinoma, jei pakeliui jo kas nors nenukniaukia.
+
+Lagery klausti negalima. Lagery turi būti psichologas ir pranašas. Turi žinoti, kada kas kokiam banditui į galvą šauna. Turi
+pats numanyti, kas ant seilės užėjo tave lydinčiam mušeikai. Gausi mušti, kol suprasi savaime, ko jisai nori.
+
+XIV. KLIPATŲ KLIPATOS
+
+Aprašomas sunkus gyvenimas. Disciplina.
+Turint gerą profesija, tu gauni daugiau maisto ir pajamų
+
+Rašoma, kad miško komanda, kuri raudova kelmus ir t.t buvo visada nusiplusi ir mirdavo iš bado. Kai miršta vienas, ateina gyvas.
+
+XV. "DIE ARBEITMACHT DAS LEBEN SÜSS..."
+
+kojos jau kruvinos, - nuo tų prakeiktų klumpių!
+
+Senieji katorgininkai puikini žinojo, kad lageryje darbo vaisiai visiškai nesvarbu, - svarbu tiktai, kad visą laiką judėtum,
+vargtum, kankintumeis, - kad greičiau kinkas nukratytum.
+
+Tai labai didelis mokslas: išmokti judėti - ir kad nieko nepadarytum, neįtemptum jėgų, savęs nevargintum - ir mušti negautum! Kai tą išmintį suvoki, jau gali lageryje šiaip taip verstis, bet kol ją suvoksi - šonkauliai bus gerokai nutašyti ar inkstai iš savo vietos ištarabanyti.
+
+XVI. WACEK KOZLOWSKI
+
+Maždaug po dviejų savaičių mes buvome į inteligentus jau visiškai nebepanašūs. Aš su savo ūgiu 1,90 m nuo 96 kilogramų svorio nuvažiavau iki 67 kilogramų. Kiti iš mūsų vaikščiojo jau su praskeltomis galvomis, sutinusiomis blauzdomis, žaizdotomis bšlaunimis, nuo mušimų pamėlynavusia nugara, nuolat spingsinčiomis nuo antausių ausimis, suraižytais veidais. Kojos visų buvo žaizdotos, kruvinos. Retas kuris vaikščiojo be pakeltos temperatūros.
+
+1944 metais, pavasarį, lagerio valdžiai atsitiko kartą toks reikalas vieną merginą pakarti, - pakarti liepė gestapas, ją į lagerį
+pristatęs. Iki tol lageryje moterų nekardavo, tik vyrus. Prieš tokią naujieną net oficialūs budeliai susvyravo.
+
+XVII. LIETUVIŲ - LENKŲ REIKALAS
+
+Lenkai bandė primušti lietuvį, bet kiti lenkai jam padėjo.
+Kvailių skaičius yra begalinis. Ko ko, bet kvailių visur yra daugiau, negu reikia. Kiekviena tauta jų turi ir sau, ir eksportui pakankamai
+Pats lageris iš pradžiu buvo skirtas tik lenkam, tai jų buvo daugiausia
+
+Kaminskis jis esąs, - pasisako, - lenkas iš Pamario. Lenkai pradėjo padėti Lietuviam. Kaminskis pavaišino jiems vandens, cigarečių
+"Mane patį stačiai nuo alkanos mirties išgelbėjo." (Lenkai)
+
+XVIII. "LIGONIŲ STATYBA"
+
+Prasitampęs lageryje apie tris savaites, pradėjau karjerą daryti - patekau jauniausiu raštininkėliu į kalinių ligoninę -
+išbandymo tvarka.
+
+Klipatos kaip musės rudenį miršta. Jis pasirašo mirties pranešimą. Pačios populiariausios klipatų ligos buvo:
+AKS - Allgemeine Körperschwache - bendras kūno nusilpimas; kraujo apytakos pakrikimas, vidurių kataras. Dar labai populiari klipatų liga, privačiame gyvenime mažai težinoma, o lageryje - tikra giltinė - tai flegmona. Šlaunis ar blauzda patinsta, paraudonuoja, pamėlynuoja, prakiūra... Pūva raumenys. Lageryje žaizdos labai sunkiai gyja. Menkutė žaizdelė ištisas savaites, mėnesius pūliuoja - nėra maisto žaizdai gyti. Kartą prasidėjusi flegmona mėtosi po visą kūną, pūva gyvas žmogus.
+
+1943 metų kovo-balandžio mėnesį lageryje buvo nepilni 4000 kalinių, o mirdavo jų kasdien po 40-50. Tačiau balandžio pabaigoje - gegužės pradžioje jų mirdavo kasdien jau apie 100. Atėjo tokia savotiška cholerina, - storosios žarnos uždegimas, - labai daug žmonių surijusi, atėjo vidurių šiltinė, dėmėtoji šiltinė, dizenterija, plaučių uždegimai ir dar kažkas tenai. Heidelis ėmė tuomet savo įstaigą plėsti. Gavo daugiau kambarių, o klipatom - įvedė atskirą bloką, - jiem jau duodavo nuo darbo poilsio, silpniausius - net visiškai į darbą nebevarydavo.
+
+Dabar į ligoninę buvo galima kreiptis, jei karščio turi ne mažiau 39
+laipsnių. Jei nueisi su mažesne temperatūra - gauni kumščiu į žandą, batu per pilvą - apsivertęs gali ropoti, kur nori. Vėliau
+priimamoji į ligoninę temperatūra buvo nuleista iki 38 laipsnių, o 1944 metų rudeniop - net iki 37.
+
+Sruoga budelis įdarbino ligoninės raštinėje, bet jis buvo išmestas nes kitas budelis jį susargdino.
+
+XIX. MUŠEIKIZMO FILOSOFIJA
+
+Rašo apie budelio istorijas, kaip anksčiau tik numirusiam kaliniui, buvo išplešami kepenys ir valgydavo kaliniai.
+Rašo, kad čia ne žmonės kalti, bet sistema, pats lageris.
+
+XX. KAMINO PAUNKSMĖJE
+
+Prasideda karantinas, siautėja ligos. Aprašoma, kaip visi miršta nuo įvairiausių ligų
+Praranda darbą, grįžta atgal prie rastų tampimo. Galvoja, kaip nuo rastų pasprukti.
+
+XXI. APLINK KELMĄ VISĄ DIENĄ
+
+Lenkas pasidalijo kiaušiniu su visais
+Jam darbas labai sunkus, tampa klipata
+Sveikinu, - aš jau klipata!
+
+XXII. KLIPATŲ KOMANDOJE
+
+Aš patekau dirbti į vieną pačių svarbiausių lagerio įstaigų, oficialiai vadinamų Häftlingsschreibstube - kalinių raštinė. Tai buvo lagerio viršininko raštinės dalis, faktinai pati svarbiausioji. Jos žinioje buvo personalinė kalinių sudėtis ir daugelis kitų svarbių dalykų. Čia pasidarė prieinamos visokios bylos ir kai kurie slapti dalykai.
+
+XXIII. "NUO TŲ DURŲ LIG TŲ DURŲ..."
+
