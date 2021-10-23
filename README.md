@@ -284,3 +284,61 @@ Aš patekau dirbti į vieną pačių svarbiausių lagerio įstaigų, oficialiai 
 
 XXIII. "NUO TŲ DURŲ LIG TŲ DURŲ..."
 
+Jis pastoviai keliavo iš vienų barakų į kitus. Jos visos jos buvo patogios.
+
+XXIV. LAGERIO KOMENDANTAS
+
+-
+
+XXV. KALINIŲ LAGERIO VADAS
+
+Lageryje būdavo vykdomos mirties bausmės, - kartais viešai, kartais neviešai. Kartais, būdavo, reikia pakarti keliolika žmonių. Tačiau korimas - nuobodi procedūra.
+
+XXVI. RAPORTO VADOVAS
+
+XXVII. "LAGERIO SAVIVALDA"
+
+Visi lagerio kaliniai gyventi buvo suskirstyti į atskirus barakus, blokais vadinamus. Kiekviename bloke, normaliai imant, gyveno nuo šešių šimtų iki dviejų tūkstančių ir daugiau kalinių, nors oficialiai vietų bloke tebuvo vos trys šimtai šešios dešimtys,
+- tiek pavienių lovų tebuvo.
+
+Gauna, būdavo, 1943 metais kalinys iš namų siuntinį - geresnę siuntinio dalį jam oficialiai atima blokfiureris ir blokavas su
+šreiberiu. Atima savo nuožiūra. Pavyzdžiui, blokfiureris, - jis irgi žmogus. Ir jam gyventi reikia.
+
+Juo labiau, kad labai keisti buvo tie SS vyrai. Vogdavo visi jie be išimties, ir visi žinojo tai, bet kažkodėl vienas nuo kito
+labai slėpdavosi. Skundė vienas kitą Berlynui, riejosi ir pjovėsi it šunes dėl kaulo...
+
+XXVIII. SENIŪNAS ARNO LĖMANAS
+
+-
+
+XXIX. TAS GYVATĖ FRICAS ZELIONKĖ
+
+-
+
+XXX. RAŠTINĖS ŠVIETALAI
+
+Zagorskis ir Renkaiskis - buvo įtakingiausi lagerio lenkų visuomenės nariai. Jų žodis būdavo lemtingas lagerio lenkiškajai
+politikai. Mane, patekusį į raštinę, priėmė jie su išskėstomis rankomis. Guodė kaip galėdami, darbais neužversdami. Mokė
+lageriškai dirbti: neskubėti, darbas - ne vilkas - nepabėgsiąs, o mano sveikata, esą, jau pabėgusi... Jie priglobė mane, valgydino
+ir stiprino, padėdami žaizdas išgydyti, - jų šviesus paveikslas neužges mano širdyje, kol ji tik mano krūtinėje plastės!
+
+Aš pasilikau pas juos dirbti ir dirbau iki galo savanoriu - ir tuomet, kai man, kaip garbės katorgininkui, darbas buvo jau
+nebeprivalomas. Be jokio darbo lageryje sėdėti iš viso labai kvailas reikalas. Garbės katorgininko padėtis - labai opus dalykas.
+Kiekvieną momentą galėjo tave grąžinti į bendrą bloką ir išgrūsti vėl į miško koloną. Pasilikdamas senojoj vietoj, vis daugiau
+vilties turi ir nenumatytais atvejais joje pasilikti. Pagaliau - čia žmonės tokie geri. Ir iš raštinės - taip toli matyti: visas lageris, visi
+žmonės, visa tvarka, - visa reikalingoji medžiaga...
+
+XXXI. POLITINIAI KATORGININKAI
+
+Visi lagerio kaliniai buvo suskirstyti pagal "nusikaltimo" rūšį ir dėvėjo atitinkamos spalvos trikampį šalia numerio ant krūtinės ir ant kelnių kiškos, nors lageryje jie buvo traktuojami, skiriami į darbus ir baudžiami visi vienodai. Šiokių tokių privilegijų turėdavo tiktai vokiečiai kriminalistai.
+
+Lenkus sodindavo į lagerį dar ir už tai, kad jie atsisakydavo užsirašyti vokiečiais, - dokumentuose buvo žymima; Volksliste abgelehnt - atmetė pasiūlymą įsivokietinti. Už tokį akiplėšiškumą buvo taip pat faktinai skiriama mirties bausmė. Žymus skaičius buvo dar rasinės politikos aukų, - vokiečių, lenkų ir rusų. Vokiečius sodino lagerin už tai, kad jie turėjo santykių su lenkėm ar rusėm, o lenkus ir rusus - už santykius su vokietaitėmis.
+
+Už meiliškus santykius su vokietėmis lagerio kančiomis bausdavo tiktai rusus ir lenkus, kitų gi tautų žmonėm nieko nedarydavo. Net nacių taip nemėgiamieji žydai - ir tie ne visi vienodai buvo traktuojami. Tuo tarpu, kai Rytų Europos žydai už santykius su vokietėmis buvo žudomi, pačios Vokietijos žydai už tai gaudavo tiktai lagerį, o Prancūzijos ir Olandijos žydai - ir be lagerio gyvi išlikdavo.
+
+Nėščias moteris jis paprastai grąžindavo atgal gestapui. Bet vis dėlto ir nėščia viena kita patekdavo. Atsitikdavo, kad būsimoji karta ir pačiame lageryje buvo jau užplanuojama. Lageryje gimęs pilietis gaudavo taip pat raudoną trikampį, - jis jau iš prigimimo buvo politinis nusikaltėlis, Trečiojo reicho pikčiausias nedraugas.
+
+XXXII. BIBELFORŠERIAI
+
+Bibelforscher - biblijos tyrinėtojas - tai buvo taip pat nusikaltimo ir are što rūšis. Tačiau jie patys, bibelforšeriai, to nusikaltimu nelaikydavo, - jie tuo didžiuodavos.
+Anketoje, kur buvo žymima religija, jie išdidžiai rašydavo: bibelforšeris. Tai buvo protestantų sektantai, daugiausia pasidarbavę Rytprūsiuose ir Lenkijos žemėje. Daugumas jų buvo vokiečiai, bet buvo jų tarpe ir vienas kitas lenkas. Jų lageryje buvo nedaug, vos kelios dešimtys vyrų ir moterų, bet užtat visi jie buvo puikiai išsilaikę egzemplioriai, - vienas už kitą įdomesnis, ypač psichopatologui.
