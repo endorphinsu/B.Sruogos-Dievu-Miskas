@@ -362,3 +362,21 @@ XXXV. YPATINGIEJI KATORGININKAI
 tokią, kaip miestuose aplink kalėjimą stato.
 
 XXXVI. PEDAGOGIŠKIEJI EGZEMPLIORIAI
+
+-
+
+Fsio dapiso mane
+
+XXXXVII. MOTERIŠKOJI PUSĖ
+
+Moterims buvo lengviau lageryje palyginus su vyrais: lengvesni darbai, mažesnės bausmės. Buvo apie 500 galvų, buvo iki tūkstančio. Yra buvusios pervežtos į atskirą moterų lagerį. Vyrai, be abejo, visada žiūri, kai retkarčiais pamato moteris, stebi jas, grožisi jomis.
+
+61. LAISVĖ PATVORY
+
+Buvo pradėta naikinti įrodymus. Pastatai pilni esesininkų.
+
+Apie bet kokį valgymą ir galvoti buvo juokinga.
+
+    Važiuoja Raudonosios Armijos tankai. Važiuoja ir važiuoja. Tokia daugybė jų! Po dešimties minučių jie buvo jau mūsų kieme…
+
+Profesorius sako: Aš jau nebegaliu pasikelti. Per naktį nuo šalčio ir lietaus mano kojos pasidarė visiškai nebesukalbamos. Guliu patvory - ir tiek: kas man kita beliko daryti?
